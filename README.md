@@ -1,4 +1,5 @@
-## Hi there 👋
+## <img width="498" height="266" alt="17878885103527196132054196585392" src="https://github.com/user-attachments/assets/c07045fe-e582-44c3-85df-b61b3d5ee137" />
+
 
 <!--
 **sexyrexyy/sexyrexyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
