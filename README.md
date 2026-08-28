@@ -1,4 +1,10 @@
+
+<a href="https://hits.sh/github.com/sexyrexyy/hits/"><img alt="Hits" src="https://hits.sh/github.com/sexyrexyy/hits.svg?style=for-the-badge&label=REXsplosions&color=a39252&labelColor=542017"/></a>
+
+
 ## <img width="498" height="266" alt="17878885103527196132054196585392" src="https://github.com/user-attachments/assets/c07045fe-e582-44c3-85df-b61b3d5ee137" />
+
+
 
 
 <!--
