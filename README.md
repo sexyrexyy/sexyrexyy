@@ -7,6 +7,7 @@
 
 
 
+[⑅݂ ̫ ꒰𓈒 . ݂ .𓈒 ᩙ](https://rexlovesya.atabook.org/?page=1) 
 <!--
 **sexyrexyy/sexyrexyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
