@@ -5,7 +5,7 @@
 
 
 
-[ata](https://rexlovesya.atabook.org/?page=1)  ۶ৎ.  [rentry](https://rentry.co/melodramaticmemory)
+[ata](https://cecilcanthelpit.atabook.org/)  ۶ৎ.  [rentry](https://rentry.co/melodramaticmemory)
 <!--
 **sexyrexyy/sexyrexyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
