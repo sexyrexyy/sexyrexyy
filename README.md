@@ -1,14 +1,11 @@
 
-<a href="https://hits.sh/github.com/sexyrexyy/hits/"><img alt="Hits" src="https://hits.sh/github.com/sexyrexyy/hits.svg?style=for-the-badge&label=REXsplosions&color=a39252&labelColor=542017"/></a>
+<a href="https://hits.sh/github.com/sexyrexyy/hits/"><img alt="Hits" src="https://hits.sh/github.com/sexyrexyy/hits.svg?style=plastic&label=GDA%20agents&color=e05d44&labelColor=344c5a"/></a>
 
-
-## <img width="498" height="266" alt="17878885103527196132054196585392" src="https://github.com/user-attachments/assets/c07045fe-e582-44c3-85df-b61b3d5ee137" />
-
-
+<img width="192" height="192" alt="17900252617328934139362672454888" src="https://github.com/user-attachments/assets/d93a5ea8-ad80-416f-8ab4-aec4add925f0" />
 
 
 
-[ata](https://rexlovesya.atabook.org/?page=1)   ੭﹕﹒ [rentry](https://rentry.co/melodramaticmemory)
+[ata](https://rexlovesya.atabook.org/?page=1)  ۶ৎ.  [rentry](https://rentry.co/melodramaticmemory)
 <!--
 **sexyrexyy/sexyrexyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
